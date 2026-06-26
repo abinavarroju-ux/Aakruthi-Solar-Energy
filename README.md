@@ -1,1 +1,0 @@
-# Aakruthi-Solar-Energy
